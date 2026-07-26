@@ -1,16 +1,25 @@
-## Hi there 👋
+# Hi, I'm Sasaki Mika 👋
 
-<!--
-**SakiMika/sakimika** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Just a normal girl from another reality.
 
-Here are some ideas to get you started:
+## Multi-Reality Theory
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Within the observable universe, countless realities exist.
+
+They overlap with one another, and between them, rifts are always forming.
+
+## The Traversal Theory
+
+In this reality—or, more accurately, this universe—it is possible to cross from one reality into another.
+
+This process is known as **Traversal**.
+
+However, Traversal comes with one irreversible rule:
+
+> Once you Traverse, you can never Traverse again.
+
+## The Theory of Identity
+
+The consequence of traveling across multiple realities can be summarized in one simple statement:
+
+> **I am not me.**
